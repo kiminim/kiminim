@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vy Kim Nguyen aka @kiminim!
+- 🎓 I’m currently studying Bioinformatics/Biomedical Engineering @ UNSW
+- 💭 I want to make a real impact on global healthcare through developing new technologies, software or hardware!
+- 💚 My hobbies are photography, playing video games and doing nail art
+- 💡 Currently learning how to make my own blog to upload my photography
