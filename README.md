@@ -1,4 +1,1 @@
 - 👋 Hi, I’m Vy Kim Nguyen aka @kiminim!
-- 🎓 I’m currently studying Bioinformatics Engineering @ UNSW
-- 💚 My hobbies are crocheting, photography and playing video games
-- 💡 Currently learning how to make a personal blog to upload my photography
